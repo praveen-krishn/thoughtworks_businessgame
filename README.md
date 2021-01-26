@@ -2,7 +2,7 @@
 
 By: Praveen Krishnan
 
-Email: praveen.krishn@gmail.com | Phone: 9901011699 | [LinkedIn](https://www.linkedin.com/in/praveenkm/)
+[LinkedIn](https://www.linkedin.com/in/praveenkm/)
 
 ## Assumptions
 
